@@ -1,2 +1,1 @@
-# First_Code
-# First_Code
+Vui thôi
